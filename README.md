@@ -34,4 +34,4 @@ He himself don't uses the car dash, rather uses a middle screen gear indicator.
 
 - game gets new cars, users: we need WAY more tracks, if you released nothing but tracks for the next two years noone would complain.
 
-- We need more cars! On race day, everyone is on the OP car making most of the grids a singlr make race.
+- We need more cars! On race day, everyone is on the OP car making most of the grids a single-make race.
