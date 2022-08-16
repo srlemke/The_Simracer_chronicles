@@ -1,6 +1,4 @@
 # The Simracer chronicles
-Just for fun
-
 
 - If you use a loadcell, you will never go to regular pedals again;
 
