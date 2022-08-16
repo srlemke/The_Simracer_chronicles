@@ -18,11 +18,13 @@ Just for fun
 
 - Most common simracers quotes: "It should have/be/add ...", "We want", "They should".
 
-- The first lap master: On qualy, P22, on race, on first lap, first corner, P6 already! Damn!!!! why are they so slow?! why they brake so early. - After crashing a few corners later and taking 7 other cars with him. "I'm gonna uninstall this game!!!" - He wont uninstall, you can find him the same minute at some other monza lobby.
+- The first lap master: On qualy, P22, on race, on first lap, first corner, P6 already! Damn!!!! why are they so slow?! why they brake so early. - After crashing a few corners later and taking 7 other cars with him. "I'm gonna uninstall this game!!!"
+He wont uninstall, you can find him the same minute at some other monza lobby.
 
-- I love the porsche, mercedes evo, ferrari evo, bentley, mclaren, bmw m4 I always loved it, since I was a kid.. it is just a race car, it feels like it.
+- I love the <s>porsche</s>, <s>mercedes evo</s>, <s>ferrari evo</s>, <s>bentley</s>, <s>mclaren</s>, bmw m4 I always loved it, since I was a kid.. it is just a race car, it feels like it.
 
-- The immersion master: if you don't use cockpit view, what are doing on a simulator! He himself don't uses the car dash, rather uses a middle screen gear indicator.
+- The immersion master: if you don't use cockpit view, what are doing on a simulator! 
+He himself don't uses the car dash, rather uses a middle screen gear indicator.
 
 - "Who's at fault here?" videos are the last hope of dodgy moves approval.
 
@@ -34,4 +36,4 @@ Just for fun
 
 - game gets new cars, users: we need WAY more tracks, if you released nothing but tracks for the next two years noone would complain.
 
-- We need more cars! On race day, everyone is on the OP car making most of the grids almost one make.
+- We need more cars! On race day, everyone is on the OP car making most of the grids a singlr make race.
