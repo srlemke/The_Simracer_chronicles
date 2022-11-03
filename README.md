@@ -19,10 +19,10 @@
 - The first lap master: On qualy, P22, on race, on first lap, first corner, P6 already! Damn!!!! why are they so slow?! why they brake so early. - After crashing a few corners later and taking 7 other cars with him. "I'm gonna uninstall this game!!!"
 He wont uninstall, you can find him the same minute at some other monza lobby.
 
-- I love the <s>porsche</s>, <s>mercedes evo</s>, <s>ferrari evo</s>, <s>bentley</s>, <s>mclaren</s>, bmw m4 I always loved it, since I was a kid.. it is just a race car, it feels like it.
+- I love the <s>porsche</s>, <s>mercedes evo</s>, <s>ferrari evo</s>, <s>bentley</s>, <s>mclaren</s>, current_op_car I always loved it, since I was a kid.. it is just a race car, it feels like it.
 
 - The immersion master: if you don't use cockpit view, what are doing on a simulator! 
-He himself don't uses the car dash, rather uses a middle screen gear indicator.
+He himself don't uses the car dash, rather uses a middle screen gear indicator, closer to the windscreen than granny and sitting higher them the empire state building, with an angle that he can see the cars that follow him by looking trough the bottom of the car.
 
 - "Who's at fault here?" videos are the last hope of dodgy moves approval.
 
