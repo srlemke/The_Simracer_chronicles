@@ -35,3 +35,7 @@ He himself don't uses the car dash, rather uses a middle screen gear indicator, 
 16- game gets new cars, users: we need WAY more tracks, if you released nothing but tracks for the next two years noone would complain.
 
 17- We need more cars! On race day, everyone is on the OP car making most of the grids a single-make race.
+
+18- The BOP connoisseur: Insists BOP is fine, that there is no favoured car. On race day, he will be in the OP car.
+
+19- Le conseiller: He is from the same school of The "BOP connoisseur", they will make everything to convince you the cars BOP is leveled, both on race day will be in the known OP car, but give you advices that you can pick any other car, and assure you they are all well leveled.
