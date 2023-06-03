@@ -40,4 +40,4 @@ He himself don't uses the car dash, rather uses a middle screen gear indicator, 
 
 19- Le conseiller: He is from the same school of The "BOP connoisseur", they will make everything to convince you the cars BOP is leveled, both on race day will be in the known OP car, but give you advices that you can pick any other car, and assure you they are all well leveled.
 
-![Screenshot](paingharold.jpg)
+![Alt text](/painharold.jpg)
