@@ -36,8 +36,9 @@ He himself don't uses the car dash, rather uses a middle screen gear indicator, 
 
 17- We need more cars! On race day, everyone is on the OP car making most of the grids a single-make race.
 
-18- The BOP connoisseur: Insists BOP is fine, that there is no favoured car. On race day, he will be in the OP car.
+18- "The BOP connoisseur": Insists BOP is fine, that there is no favoured car. On race day, he will be in the OP car.
 
-19- Le conseiller: He is from the same school of The "BOP connoisseur", they will make everything to convince you the cars BOP is leveled, both on race day will be in the known OP car, but give you advices that you can pick any other car, and assure you they are all well leveled.
+19- "Le conseiller": He is from the same school of The "BOP connoisseur", they will make everything to convince you the cars BOP is leveled, both on race day will be in the known OP car, but give you advices that you should pick any other car and assure you they are all well leveled.
 
-20- BAU: On the race, crashes, swears and blames the other driver, says he should go back to Gran Turismo and players like that are destroyng the game. In the end of the race watches the replay and sees he was at fault, which then immediatelly switches the type of incident from stupid one to funny one, and laughts and says suchs things happen.
+20- "BAU": On the race, crashes, swears and blames the other driver, says he should go back to Gran Turismo and players like that are destroyng the game. In the end of the race watches the replay and sees he was at fault, which then immediatelly switches the type of incident from stupid one to funny one, and smiles like Hide The Pain Harold.
+
