@@ -40,6 +40,10 @@ He himself don't uses the car dash, rather uses a middle screen gear indicator, 
 
 19- "Le conseiller": He is from the same school of The "BOP connoisseur", they will make everything to convince you the cars BOP is leveled, both on race day will be in the known OP car, but give you advices that you should pick any other car and assure you they are all well leveled.
 
-20- "BAU": On the race, crashes, swears and blames the other driver, says he should go back to Gran Turismo and players like that are destroyng the game. In the end of the race watches the replay and sees he was at fault, which then immediatelly switches the type of incident from stupid one to funny one, and smiles like Hide The Pain Harold.
+20- Origins unencryped: Gas, break... gaaaaaasssss, brrrrreeeakkkkess, gas break gas break -> Comes from ACC
+
+21- Origins unencryped2: On long straight waves to brake slipstream -> Comes from Iracing.
+
+22- "BAU": On the race, crashes, swears and blames the other driver, says he should go back to Gran Turismo and players like that are destroyng the game. In the end of the race watches the replay and sees he was at fault, which then immediatelly switches the type of incident from stupid one to funny one, and smiles like Hide The Pain Harold.
 
 <img src="./painharold.jpg" width="300" />
